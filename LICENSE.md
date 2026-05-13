@@ -1,4 +1,4 @@
-# 
+# Logic Pro for macOS automatic Filter: text-animation & multi-cam-editing offers the most advanced Logic Pro for macOS filter, with text-animation and multi-cam-editing. Ideal for
 
 
 
